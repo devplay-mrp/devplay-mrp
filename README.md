@@ -2,7 +2,7 @@
 
 ![DevPlay_gray](https://user-images.githubusercontent.com/83662317/149406921-5ad0a93c-152b-43a8-899b-3698de53cb36.gif) 
 
-### Hi there <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px">
+### Hi there :v:
 
 
 <img align="right" alt="GIF" src=  "https://user-images.githubusercontent.com/83662317/149411843-fa0a1c80-cf85-47d2-9170-5cfe18a1e576.gif " width="620" height="580" />
